@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Udbhav's Blogs
 
-I'm glad you are here. I plan to talk about ...
+Nice to meet you! I am an engineering student at CUHK and I love to play badminton and tennis!
